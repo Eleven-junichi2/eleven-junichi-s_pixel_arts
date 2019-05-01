@@ -1,1 +1,1 @@
-# eleven-junichi-s_pixel_arts
+# eleven-junichi2's pixel arts
